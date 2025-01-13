@@ -2,7 +2,7 @@
 - 👀 I’m interested in Web devop
 - 🌱 I’m currently learning C/Cpp, Python, Java and Javascript 
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ; HMU 0742968591 
+- 📫 How to reach me ; HMU +254-111-414-441
 - 😄 Pronouns: ... wacha nisiwachoche. coding sio muchezo buana
 - ⚡ Fun fact: ... coding is fun 
 
